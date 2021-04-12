@@ -9,10 +9,10 @@ return `┏━ ℘ąɬơ ცơɬ ۷5 ━┓
 ║
 ║
 ║ _Grupo 1 wsp:_
-║ _*🪀 PRIVADO DE MERRY LEONEL 🪀*_
+║ _*🪀 PRIVADO 🪀*_
 ║
 ║ _Grupo 2 wsp:_
-║ _*🪀 PRIVADO DE MERRY LEONEL🪀*_
+║ _*🪀 PRIVADO 🪀*_
 ║
 ║ _📹 𝐘𝐨𝐮𝐭𝐮𝐛𝐞:_
 ║ _*🌐 PRIVADO 🌐*_
